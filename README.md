@@ -1,4 +1,4 @@
-bΞNIGNO̱dΞSIGNS ♉
-CRΞΛTIVΞ DIRΞCTOR | DΞSIGNΞR ✍🏼
-NΞW CONTΞNT ON @redbubble
-@omniavisionent
+bΞNIGNOdΞSIGNS ♉
+CRΞΛTIVΞ DIRΞCTO̱R | dΞSIGNΞR ✍️
+NΞW CO̱NTΞNT O̱N @redbubble
+@omniavisionent @davisopranomusic
