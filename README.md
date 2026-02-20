@@ -1,4 +1,4 @@
-bΞNIGNOdΞSIGNS ♉
-CRΞΛTIVΞ DIRΞCTO̱R | dΞSIGNΞR ✍️
-NΞW CO̱NTΞNT O̱N @redbubble
-@omniavisionent @davisopranomusic
+CREATIVE dIRECTOR ♉
+CONTENT @redbubble
+LOCAL GUIdE @googlemaps
+dEV @googlefordevs
